@@ -2,7 +2,7 @@
 
 ## Link to YouTube 
 
-Check out this YouTube video: 
+Check out this YouTube video: https://youtu.be/NZxi7rpmQq4
 
 
 ## Introduction
